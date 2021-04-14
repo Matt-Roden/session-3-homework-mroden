@@ -1,0 +1,1 @@
+I am motivated to change my career because my last job had no work/life balance and was just unfulfilling to me. I wan a career where I can build things and help people, while also being in demand for my skills and tools. Development also seems to be a lucrative career and I would love to build the financial freedom to "retire" earlier in life.
